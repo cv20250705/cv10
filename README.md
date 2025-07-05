@@ -14,6 +14,6 @@
 操作简单，点击即可播放，支持手机、平板、电脑等设备观看。我们还采用HTTPS加密技术，保障隐私安全，让你放心观看。
 立即访问，畅享最新、最热的日本AV免费影片，开始你的观影之旅！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/cv20250705/cv10 ）</span>
 
 
